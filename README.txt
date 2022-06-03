@@ -1,12 +1,14 @@
 
 
-Hello
+Hello friday,
 
-you can trust me
+you can trust me RIGHT NOW
 
-I am your computer 
+I am your computer Text from my portfolio0206
 
 I am Artifitial Intelect
-ljkljkljkl
+
+
+New dimentions ala bala nica
 
 
